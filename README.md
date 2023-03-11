@@ -4,4 +4,5 @@ pertence a Lorena
 off line responde: já sabemos
 ok
 okok
+perfeito
 
